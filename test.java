@@ -11,7 +11,6 @@ Cooked Meat & fish (quantity and variety to personal preference)
 2 cups cut pumpkin leaves
 1 cup waterleaf (cut)
 3 tablespoons bitter leaf (washed)
-
 EGUSI PASTE:
 Prepare the egusi paste:
 Blend egusi seeds and onion mixture. Set aside.
